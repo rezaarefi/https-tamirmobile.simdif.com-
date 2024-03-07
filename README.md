@@ -1,2 +1,2 @@
-# https-tamirmobile.simdif.com-
+# tamirmobile.simdif.com
 تعمیرات موبایل هایتک در مشهد مقدس
